@@ -1,2 +1,0 @@
-# minoriolguin.github.io
- 
